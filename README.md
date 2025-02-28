@@ -1,2 +1,1 @@
-# hello-world
-Itš for practice
+g;lmdglkxd'g'dlrg
